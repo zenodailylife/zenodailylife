@@ -13,7 +13,7 @@
   
 17 ⠀ y/o ⠀  ⠀ ⠀  schizoaffective ⠀ bipolar ⠀ type
 
- [carrd](https://canmano.carrd.co/) ⠀ [rentry](https://rentry.org/--kuroaka) ⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀ [roblox](https://www.roblox.com/users/3654139644/profile)
+𓄼 ⠀⠀ [carrd](https://canmano.carrd.co/) ⠀⠀⠀ [rentry](https://rentry.org/--kuroaka) ⠀⠀⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀⠀ 𓄹
 
  <div></div>
 
