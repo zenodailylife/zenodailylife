@@ -10,8 +10,6 @@
 </p>
 
   wilson ⠀ / ⠀ aki  ᵎᵎ ⠀  ⠀ ౨ৎ ⠀   ⠀ he ⠀ / ⠀ she
-  
-17 ⠀ y/o ⠀  ⠀ ⠀  schizoaffective ⠀ bipolar ⠀ type
 
 𓄼 ⠀⠀ [carrd](https://canmano.carrd.co/) ⠀⠀⠀ [rentry](https://rentry.org/--kuroaka) ⠀⠀⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀⠀ 𓄹
 
