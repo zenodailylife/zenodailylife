@@ -9,7 +9,7 @@
   <img width="1280" height="348" alt="Image" src="https://github.com/user-attachments/assets/b5929148-443e-4e16-893b-eebc486479cd" />
 </p>
 
-  wilson ⠀ / ⠀ aki  ᵎᵎ ⠀  ⠀ ౨ৎ ⠀   ⠀ he ⠀ / ⠀ she
+  will ⠀ / ⠀ ryland   ᵎᵎ ⠀  ⠀ ౨ৎ ⠀   ⠀ he ⠀ / ⠀ she
 
 𓄼 ⠀⠀ [carrd](https://canmano.carrd.co/) ⠀⠀⠀ [rentry](https://rentry.org/--kuroaka) ⠀⠀⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀⠀ 𓄹
 
