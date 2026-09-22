@@ -11,7 +11,7 @@
 
   will ⠀ / ⠀ ryland   ᵎᵎ ⠀  ⠀ ౨ৎ ⠀   ⠀ he ⠀ / ⠀ she
 
-𓄼 ⠀⠀ [carrd](https://bipolargrace.carrd.co/) ⠀⠀⠀ [rentry](https://rentry.org/--kuroaka) ⠀⠀⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀⠀ 𓄹
+𓄼 ⠀⠀ [carrd](https://wilerunner.carrd.co/) ⠀⠀⠀ [rentry](https://rentry.org/--kuroaka) ⠀⠀⠀ [straw.page](https://bipolarlovino.straw.page/) ⠀⠀ 𓄹
 
  <div></div>
 
